@@ -19,7 +19,7 @@ Mindset: Vejo a tecnologia não apenas como trabalho, mas como uma forma de apre
 ***
 ## 🤝 Vamos nos conectar?
 
-LinkedIn: linkedin.com/in/Natan Malta
+LinkedIn: linkedin.com/in/Natan_Malta
 
 E-mail: natanmalta1941@gmail.com
 
